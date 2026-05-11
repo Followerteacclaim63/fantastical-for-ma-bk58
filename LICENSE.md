@@ -1,4 +1,4 @@
-#  
+#  Fantastical for macOS vip Addon: offline access & version history offers the most advanced Fantastical for macOS addon, with offline access and version history. Ideal for
 
 
 
